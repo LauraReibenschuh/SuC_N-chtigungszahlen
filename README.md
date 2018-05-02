@@ -1,0 +1,1 @@
+# SuC_N-chtigungszahlen
